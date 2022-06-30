@@ -1,2 +1,4 @@
 # loi-cuoc-goi-mobifone-bi-huy
 Cuộc gọi MobiFone bị ngắt, bị hủy là vì nguyên nhân gì?
+<p style="text-align: justify;"><a href="https://3gmobifones.com/loi-cuoc-goi-mobifone-bi-ngat"><strong>Cuộc gọi MobiFone bị ngắt</strong></a> đột ngột là một trong những tình trạng mà người dùng viễn thông gặp phải. Nếu bạn đang gọi điện nhưng bị tắt ngang giữa chừng khiến ảnh hưởng đến quá trình sử dụng. Có nhiều trường hợp khách hàng gọi điện nhưng chỉ nghe thấy tiếng tút tút hoặc bị tắt mà không hiểu lý do.</p>
+<p style="text-align: justify;">Chính vì điều đó trong nội dung bài viết sau <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> sẽ giúp bạn tìm nguyên nhân và cách khắc phục nhanh nhất. Nếu bạn cũng rơi vào trường hợp này thì hãy bỏ túi và áp dụng ngay nhé!</p>
